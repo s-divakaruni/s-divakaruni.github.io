@@ -1,4 +1,4 @@
-# sdiva.github.io
+# s-divakaruni.github.io
 # shivani divakaruni 
 # shivani.divakaruni@gmail.com 
 # this is my personal email address 
